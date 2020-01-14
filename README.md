@@ -5,6 +5,6 @@ By Umanochiocciola!
 -H4ck da stuff with this niu gagget!-
 >Nau with databeisis
 >BeInkognito!
->Spoken language like commands!
+>"pirata frè" language commands! 
 >w4w!
->piton needed
+>piton nidid
